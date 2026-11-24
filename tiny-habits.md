@@ -25,9 +25,6 @@ In this video, what was the most interesting story or idea for you?
 Aggregation of Marginal Gains: doing tiny, 1% improvements in your daily habits can lead to massive, compound success over time.
 
 
-4. Book Summary of Atomic Habits
-Video - 11:11 minutes - https://www.youtube.com/watch?v=YT7tQzmGRLA
-
 ### Question 5
 What is the book's perspective about Identity?
 
